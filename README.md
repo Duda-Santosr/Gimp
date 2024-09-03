@@ -1,2 +1,2 @@
-# Gimp_EditorImagens
+# Gimp_EditorImagens 🖌️
  
